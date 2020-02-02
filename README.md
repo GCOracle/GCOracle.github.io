@@ -1,1 +1,1 @@
-# GCOracle.github.io
+# GCInternships2020.github.io
